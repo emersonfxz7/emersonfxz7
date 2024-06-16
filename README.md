@@ -12,7 +12,7 @@ Meu nome é Emerson Alves
 
 @emersonfxz7
 
-![gif](https://tenor.com/view/goku-peace-dragon-ball-kid-goku-son-goku-gif-27287094)
+![](https://tenor.com/view/goku-peace-dragon-ball-kid-goku-son-goku-gif-27287094)
 
 
 
